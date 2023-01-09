@@ -1,1 +1,1 @@
-# Exams.-Winter-2023
+# Exams.Winter.2023
